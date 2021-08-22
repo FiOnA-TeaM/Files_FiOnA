@@ -1,11 +1,11 @@
 
 # DRAGON
 
-# <p align="center" style="color:#cb3349" >سورس دراكون على تلكرام ⌯︙
+# <p align="center" style="color:#cb3349" >سورس فيونا على تلكرام ⌯︙
 
 # <p align="center" style="color:#cb3349" > شروحات عن السورس ادخل الى قناة السورس
 
-# <p align="center" style="color:#cb3349" > [اصـــغـــط هــنـــا لــلــدخــول الــى الــقــنــاة](https://telegram.me/S0DRG) <br>
+# <p align="center" style="color:#cb3349" > [اصـــغـــط هــنـــا لــلــدخــول الــى الــقــنــاة](https://telegram.me/zzhzzzz) <br>
 
 # <p align="center"> كود تنصيب السورس ⌯︙
 
@@ -23,14 +23,8 @@
 
   
 
-# <p align="center" style="color:#cb3349" > [مــطــور ســورس](https://telegram.me/s00f4) <br>
+# <p align="center" style="color:#cb3349" > [مــطــور ســورس](https://telegram.me/Mooaiud) <br>
  
  
  
-# <p align="center" style="color:#cb3349" > [مبــرمـج دراكون](https://telegram.me/mndzr) <br>
-
-  
-
-  
-
-# <p align="center" style="color:#cb3349" > [كـــروب  مــود](https://t.me/joinchat/APVPGU43ZnxKwJGnuBKDww) <br>
+# <p align="center" style="color:#cb3349" > [مبـرمـج فيونا](https://telegram.me/Mooaiud) <br>
